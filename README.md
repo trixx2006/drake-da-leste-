@@ -1,5 +1,5 @@
 # drákedaleste
-vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo 🤬 🥶 🤪KYAN é ZIKA FIH CARAII🤪 🥶 🤬 
+vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo 🤬 🥶 🤪KYAN é ZIKA FIH CARAII🤪 🥶 🤬 
 🤬Só VILAO AQUI NAO TEM HEROI🤬
 vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo vapo
 
